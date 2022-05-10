@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shantel-12
 - 👀 I’m interested in learning more about computers
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning at a college
 - 💞️ I’m looking to collaborate on compunies that work on making the world are better please
 - 📫 How to reach me contact me
 
